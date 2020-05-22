@@ -1,1 +1,1 @@
-# prakritiInitiatives
+# Prakriti Initiatives
